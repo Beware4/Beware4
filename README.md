@@ -2,7 +2,7 @@
 - 👀 I’m interested in how poopies are peed out
 - 🌱 I’m currently learning how to annoy people
 - 💞️ I’m looking to collaborate on diareah
-- 📫 How to reach me NEVER GONNA GIVE YOU UP NEVER GONNA LET YOU DDDDDDDDDDDOOOOOOOOOOOOOOOOOOWWWWWWWWWWWWWNNNN
+- 📫 How to reach me NEVER GONNA GIVE YOU UP NEVER GONNA LET YOU DDDDDDDDDDDOOOOOOOOOOOOOOOOOOWWWWWWWWWWWWWNNNNNNNNNNNNNNNNNN
 
 <!---
 Beware4/Beware4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
