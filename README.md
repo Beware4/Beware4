@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Beware4
 - 👀 I’m interested in how poopies are peed out
 - 🌱 I’m currently learning how to annoy people
-- 💞️ I’m looking to collaborate on diareah
+- 💞️ I’m looking to collaborate on literally anything interesting... I'm bored.
 - 📫 How to reach me NEVER GONNA GIVE YOU UP NEVER GONNA LET YOU DDDDDDDDDDDOOOOOOOOOOOOOOOOOOWWWWWWWWWWWWWNNNNNNNNNNNNNNNNNN
