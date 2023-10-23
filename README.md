@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @Beware4
-- 👀 I’m interested in how poopies are peed out
-- 🌱 I’m currently learning how to annoy people
-- 💞️ I’m looking to watching Elmo yelling at a rock.
-- 📫 How to reach me NEVER GONNA GIVE YOU UP NEVER GONNA LET YOU DDDDDDDDDDDOOOOOOOOOOOOOOOOOOWWWWWWWWWWWWWNNNNNNNNNNNNNNNNNN
+nothing to see here
